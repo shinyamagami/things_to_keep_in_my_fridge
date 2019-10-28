@@ -1,6 +1,6 @@
 
 
 
-Traditional oatmeal from Walmart 
-Serial 
-Milk 
+Traditional oatmeal from Walmart\
+Serial\
+Milk\
